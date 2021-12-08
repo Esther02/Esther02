@@ -1,4 +1,4 @@
-Hi there 👋, I'm <strong>Esther</strong>!
+<h2>Hi there 👋, I'm <strong>Esther</strong>!</h2>
 
 💻 I'm currently working on learning JavaScript
 <br>
