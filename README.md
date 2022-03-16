@@ -11,6 +11,10 @@
 
 - 💪 My top 5 skills are **Relator(Like spending time with friends), Learner, Empathy, Positivity and Developer(See potential in others; Like to see people grow) -     CliftonStrengths Assessment**
 
+- 🌍 I speak **English(Fluent)**, **Spanish(Native)**, **Japanese(Beginner)** and **Korean(Beginner)**
+
+- 🧳 I travelled to **South Korea** and **Japan** several times to learn their languages and culture. (안녕하세요 - こんにちは👋)
+
 - ⚡ Fun fact **I am 3rd Dan black belt in Taekwondo**
 
 - 🤣 Fun quote **Things Aren't Always #000 and #FFF**
