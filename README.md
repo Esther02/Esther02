@@ -5,7 +5,19 @@
 
 - 🌱 I’m currently learning **React**
 
+- 😻 I am really excited about **mentoring as volunteer at the Science Museum (CoderDojo)**
+
+- ☕ My favourite drink is **mocha**
+
+- 💪 My top 5 skills are **Relator(Like spending time with friends), Learner, Empathy, Positivity and Developer(See potential in others; Like to see people grow) -     CliftonStrengths Assessment**
+
 - ⚡ Fun fact **I am 3rd Dan black belt in Taekwondo**
+
+- 🤣 Fun quote **Things Aren't Always #000 and #FFF**
+
+- 🔎 Looking for an **opportunity to join an amazing company 🌼**
+
+- 📫 How to reach me **esthercarminatti@hotmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
